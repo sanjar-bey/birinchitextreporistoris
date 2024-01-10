@@ -1,0 +1,2 @@
+# birinchitextreporistoris
+oddiy txt repositoriy
